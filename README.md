@@ -3,7 +3,8 @@
 
 
 - 🔭 Passion in something ... (secret😊)
-- 💪 2021 Goals: Learning many things in Python
+- 💪 2022 Goals: Learning many things in Java
+- 🥅 Favorite Quote: Never Too Late to Pursue Your Dreams
 - ⭐: Reading, listening, walking, running, playing piano... and blade wind😅
 
 ### :zap: GitHub Stats
