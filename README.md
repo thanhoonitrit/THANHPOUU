@@ -2,7 +2,7 @@
 
 
 - 🔭 Passion in something ... (secret😊)
-- 💪 2022 Goals: Learning many things in more
+- 💪  Goals: Learning many things in more
 - 🥅 Favorite Quote: Never Too Late to Pursue Your Dreams
 - ⭐: Reading, listening, walking, running, playing piano... and blade wind😅
 
